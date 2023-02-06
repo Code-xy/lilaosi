@@ -9,3 +9,6 @@ TG电报频道链接🔗 https://t.me/ztztx
 3.[Vray](https://pastebin.com/raw/SUNqDbpL)
 
 🏆订阅链接永远不变，节点每天都会更新，请设置成1天更新1次，如果用不到就把订阅转成你对应的代理工具即可
+
+频道专属搜索引擎，国内即可访问，加入频道可下载所有资源喔~
+https://meow.tg/private/hgofxs
